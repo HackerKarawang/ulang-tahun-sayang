@@ -1,2 +1,0 @@
-# ulang-tahun-sayang
-
